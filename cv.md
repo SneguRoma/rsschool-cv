@@ -1,3 +1,3 @@
 # Aliaksei Kazlou
 
-## Contacts
+## Contact information:
